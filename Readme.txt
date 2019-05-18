@@ -5,4 +5,4 @@ Muh. Rayhan Ravandika 	173140714111005
 TI Vokasi UB / M4A
 
 Link Youtube : http://bit.ly/Expo-Video-Presentasi
-Link GitHub :
+Link GitHub : http://bit.ly/Project-UAS-Expo
